@@ -1,1 +1,0 @@
-# segundaKataGriffins2017
